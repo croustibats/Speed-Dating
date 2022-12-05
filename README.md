@@ -2,8 +2,6 @@
 
 My email :👉 baptiste.cournault@gmail.com 👈
 
-Video link : 👉 https://share.vidyard.com/watch/U15PECRDFE8LMzEyD6eLBV? 👈
-
 ## Project 🚧
 
 The marketing team needs help on a new project. They are experiencing a decrease in the number of matches, and they are trying to find a way to understand what makes people interested into each other.
